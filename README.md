@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DieYoung974
+- 👋 Hi, I’m 𝟒𝟎𝟒_𝐧𝐨𝐭 𝐟𝐨𝐮𝐧𝐝
 - 👀 I’m interested in Counter Strike 2 
 - 🌱 I’m currently learning ANTONS
 - 💞️ I’m looking to collaborate on ACDOLOT
